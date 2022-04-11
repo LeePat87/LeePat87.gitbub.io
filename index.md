@@ -1,7 +1,7 @@
-# File with heading
+# My last cover piece
 
-Here you can say lots of fun things about your site.
+This is nothing for everyone but myself.
 
-Maybe say a some things about yourself.
+Maybe you can read my blog if you are interested.
 
-Or maybe what you plan to blog about.
+Somehow don't blame me about what I write or think.
