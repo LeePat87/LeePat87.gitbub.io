@@ -8,7 +8,7 @@ Somehow don't blame me about what I write or think.
 
 p.s. Google Translate will not help you, this BLOG is in HK style
 
-# 本人最後的...
+# 本人最後嘅遮羞布
 
 本BLOG基本只係比自己睇
 
